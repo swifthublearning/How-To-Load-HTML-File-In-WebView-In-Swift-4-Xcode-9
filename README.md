@@ -23,11 +23,11 @@ https://www.youtube.com/watch?v=XfI5Bv0VyQ0
 ▽ CONTENT VIDEO ► PLAYLIST ► Basic Tutorials Swift 4 ►  https://www.youtube.com/watch?v=xgb9mIj2Azc&list=PLnACRTdaE5L6XTB7bGyBFnEoXVrGBCq75
 <br><br>
 # FOLLOW<br>
-# FACEBOOK ► https://www.facebook.com/SwiftHub/<br>
-# GITHUB ► https://github.com/swifthub9<br>
-# INSTAGRAM ► https://www.instagram.com/swifthub/<br>
-# Twitter ► https://twitter.com/Hub_SWIFT<br>
-# GOOGLE+ ► https://plus.google.com/u/1/b/1089644...<br> 
-# Visit SWIFT Hub WebSite ► https://unitedlearn0.wixsite.com/swifthub<br>
+FACEBOOK ► https://www.facebook.com/SwiftHub/<br>
+GITHUB ► https://github.com/swifthub9<br>
+INSTAGRAM ► https://www.instagram.com/swifthub/<br>
+Twitter ► https://twitter.com/Hub_SWIFT<br>
+GOOGLE+ ► https://plus.google.com/u/1/b/1089644...<br> 
+Visit SWIFT Hub WebSite ► https://unitedlearn0.wixsite.com/swifthub<br>
 <br>
 ▽ WATCH MORE TUTORIALS IN FUTURE SUBSCRIBE SWIFT HUB CHANNEL ►https://www.youtube.com/swifthub<br>
